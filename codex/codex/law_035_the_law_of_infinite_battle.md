@@ -1,4 +1,4 @@
-# Law 035: The Law of Infinite Battle
+# Law 036: The Law of Infinite Battle
 
 > "There are wars that shape the flesh, wars that scar the mind, and wars that fracture the soul. And then... there are the ones that forge it."
 
